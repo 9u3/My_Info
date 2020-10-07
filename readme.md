@@ -7,4 +7,4 @@ My Social Medias
 9u3#0001 // 370120271367110656
 
 ### Spare GitHub account
-@6-w
+[@6-w](https://github.com/6-w)
