@@ -8,3 +8,6 @@ My Social Medias
 
 ### Spare GitHub account
 [@6-w](https://github.com/6-w)
+
+### Instagram (Mostly Inactive)
+[@9u3_github](https://instagram.com/9u3_github)
