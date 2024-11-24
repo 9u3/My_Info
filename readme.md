@@ -10,7 +10,7 @@ My Social Medias
 [@6-w](https://github.com/6-w)
 
 ### Instagram (Mostly Inactive)
-[@unwokenn](https://instagram.com/unwokenn) < Mostly GTA Content.
+[@card.frauding](https://instagram.com/card.frauding) < Mostly GTA Content.
 
 ### Tiktok
 [@honi](https://tiktok.com/@honi) < Mostly GTA Content.
