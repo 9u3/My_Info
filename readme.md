@@ -4,7 +4,7 @@ My Social Medias
 ## I'll update this as much as I can. Including if i make new accounts. Should be updated in less than a day from making the account.
 
 ### Discord
-@zrpx // 874037444884963389
+@feral.paws // 874037444884963389
 
 ### Spare GitHub account
 [@6-w](https://github.com/6-w)
